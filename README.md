@@ -15,7 +15,7 @@
 # 
 
 ### Please Give One Star ✨ & [follow for me notify my updates 💗](https://github.com/chami03)
-<b>Version -> 3.9.6</b>
+<b>Version -> 2</b>
 # 
 Queen THARA whatsapp bot is,
 
